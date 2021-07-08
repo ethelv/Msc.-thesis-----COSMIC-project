@@ -1,1 +1,1 @@
-# Msc.-thesis-----COSMIC-project
+# Msc.-thesis---COSMIC-project
